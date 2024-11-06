@@ -1,3 +1,3 @@
 # Yuxuan Mao' Resume
 
-Updated Oct. 2024
+Updated Nov. 6, 2024
